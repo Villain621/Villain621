@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Villain621
 - 👀 I’m interested in Semiconductor
 - 🌱 I’m currently learning Semiconductor physics
-- 💞️ I’m looking to collaborate on sex
+- 💞️ I’m looking to collaborate on self-improvement
 - 📫 How to reach me nus257659@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
